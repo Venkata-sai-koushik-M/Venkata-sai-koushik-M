@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning Machine Learning
 - 💬 Ask me about anything
 - 📫 How to reach me: saik95591@gmail.com
-- 😄 Pronouns: koushik
+- 😄 Pronouns:he/him
 
 
 ## 🌐 Socials:
